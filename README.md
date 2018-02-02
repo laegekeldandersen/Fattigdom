@@ -6,17 +6,17 @@
 
 </p>
 <p>Billede</p>
-<p>Fig. Præcis det træ jeg satte min cykel op ad.</p>
+<p>Fig. 1. Præcis det træ jeg satte min cykel op ad.</p>
 
 <p>Gik op ad trappen, gennem døren ud i en lille gang. På højre side var der en mørkegrøn trappe, og på de nederste trappetrin sad der en yngre mand. Han havde navneskilt på, ergo var han ansat. Han spurgte mig om, hvad mit ærinde var, og jeg svarede, at jeg havde hørt, at man kunne få noget at spise på stedet. Det mente han ikke umiddelbart, men jeg kunne tage plads og vente på sygeplejersken, og spørge hende, om hun havde mulighed for at hjælpe mig. Jeg gik til venstre ad den korte gang, gennem endnu en dør til endnu en kort gang, parallelt med den, jeg kom fra. På gangen var der på begge sider monteret fem-seks siddepladser, hvidt metalstel og med sæde i lakeret, lyst træ. Lidt i stil med dem, man ser i nogle venteværelser på S-togsstationer.</p>
 
 <p>Billede</p>
-<p>Fig. Indgangen til bygningen til venstre, Halmtorvet.</p>
+<p>Fig. 2. Indgangen til bygningen til venstre, Halmtorvet.</p>
 
 <p>Jeg satte mig på et sæde på venstre side af gangen. Et par sæder fra mig sad en yngre kvinde med lyst hår. Hun var slank og ikke miseriespræget, men hendes ellers rimeligt modebevidste og alderssvarende tøj var snavset, omend intakt. Det samme var hendes ansigt og ben. Hun havde en stor rygsæk stående ved siden af sig på gulvet. En backpacker. Hun havde smøget sine bukseben op til knæniveau og sad med bare tæer. Der var snavs på hendes fødder og blod fra området omkring hendes storetå (kan ikke huske hvilken side) og hun sad og forsøgte at vaske såret. Da sygeplejersken kom ud, talte kvinden norsk til hende. Jeg kan ikke huske hvad hun sagde, og jeg undrede mig lidt over, hvad kvindens baggrund var. Hun virkede ikke påvirket af alkohol eller stoffer, og hun fremstod psykisk upåfaldende.</p>
 
 <p>Billede</p>
-<p>Fig. Set fra rundkørslen ved Halmtorvet, træet til venstre og bygningen til højre.</p>
+<p>Fig. 3. Set fra rundkørslen ved Halmtorvet, træet til venstre og bygningen til højre.</p>
 
 <p>Til venstre, for enden af gangen, var der en dør, givetvis til et toilet. Man kunne med mellemrum høre højlydt hoste komme fra et sted bag døren. Det var ikke tør hoste, men udtalt purulent, som fra en af svær lungebetændelse lidende. Vedkommende kastede også op et par gange i den godt og vel halve time, jeg sad og ventede. Det skete et par gange at en ansat gik hen til toiletdøren for at høre om personen på den anden side var ok. Jeg spurgte en af personalet, en lidt ældre mand, om der var noget, jeg kunne gøre, for det lød til at være alvorligt. Han sagde, at det var der desværre ikke, for personen på toilettet nægtede at komme ud eller modtage hjælp. Han sagde at hun sikkert sad og røg heroin.</p>
 
@@ -35,4 +35,4 @@
 <p>Den sygeplejerske er til dato fortsat den eneste offentlige ansatte, der reelt har hjulpet mig. Et par uger senere vendte jeg tilbage. Jeg havde på det tidspunkt fået lånt lidt penge, og i Lidl på Vesterbrogade (billede) var der tilbud på flødeboller, 6 stk. for 5 kr. Uhørt billigt, og da jeg fortsat ikke havde så mange penge, at det gjorde noget, ikke kunne købe en ordentlig gave til sygeplejersken og de andre ansatte, så købte jeg for 80 kr. flødeboller (ret sikker på at dette beløb stemmer). Det var formiddag og solen skinnede fra en skyfri himmel. Jeg mødte op, men det var et andet hold, der var på arbejde. Jeg fortalte dem kort om hvorfor jeg kom med flødeboller, jeg takkede også dem for det arbejde, de udførte, og de virkede positivt overraskede (håber jeg!). Jeg håber sgu at det er tanken, der tæller, for de flødeboller gjorde det ikke i sig selv. De lovede at hilse sygeplejersken og det resterende personale fra den pågældende dag og jeg forhold stedet og gik en tur på Vesterbro i den varme sol.</p>
 
 <p>Billede</p>
-<p>Fig. Lidl på Vesterbrogade, hvor der var tilbud på flødeboller.</p>
+<p>Fig. 4. Lidl på Vesterbrogade, hvor der var tilbud på flødeboller.</p>
