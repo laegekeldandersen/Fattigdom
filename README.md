@@ -1,2 +1,1 @@
-<h1>Web Ressources</h>
-# info
+<h1>Web Ressources</h1>
