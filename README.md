@@ -36,3 +36,9 @@
 
 <p>Billede</p>
 <p>Fig. 4. Lidl på Vesterbrogade, hvor der var tilbud på flødeboller.</p>
+
+
+## 2. Fattig i 2017
+
+
+## 3. Fattig i 2018
