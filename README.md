@@ -1,4 +1,4 @@
-# Sociale Konsekvenser af STPS 
+# Sociale Konsekvenser af STPS
 ## 1. Fattig i 2016
 ### Halmtorvet – februar 2016
 
@@ -42,13 +42,10 @@
 <p><img src="stedet2-300x156.png" alt="Duknakken" title="Fig. 4. Lidl på Vesterbrogade, hvor der var tilbud på flødeboller."/></p>
 <p></p>
 
-## 2. Fattig i 2017
 
 <p><img src="20180305_163252_1.jpg" alt="Træet" title="Fig. 1. Præcis det træ jeg satte min cykel op ad."/></p>
 <p><img src="20180305_163450_2.jpg" alt="Træet" title="Fig. 1. Præcis det træ jeg satte min cykel op ad."/></p>
 <p><img src="20180305_163615_3.jpg" alt="Træet" title="Fig. 1. Præcis det træ jeg satte min cykel op ad."/></p>
 <p><img src="20180305_163638_4.jpg" alt="Træet" title="Fig. 1. Præcis det træ jeg satte min cykel op ad."/></p>
 <p><img src="20180305_164213_5.jpg" alt="Træet" title="Fig. 1. Præcis det træ jeg satte min cykel op ad."/></p>
-
-## 3. Fattig i 2018
 
